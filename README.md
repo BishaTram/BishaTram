@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BishaTram
+- 👋 Hi, I’m @Bisha
 - 👀 I’m interested in documentaries, wrestling, good chocolate, eating out, fine art, alone time
 - 🌱 I’m currently learning more web design skills
 - 💞️ I’m looking to collaborate on writing projects
