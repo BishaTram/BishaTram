@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on writing projects
 - 📫 How to reach me bisha@myyahoo.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I recent saw Beetlejuice
+- ⚡ Fun fact: The last movie I saw was Beetlejuice
 
 <!---
 BishaTram/BishaTram is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
